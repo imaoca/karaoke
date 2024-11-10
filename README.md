@@ -31,6 +31,14 @@ https://www.uta-net.com/song/2822/
 https://www.uta-net.com/song/3005/
 ## 世界は二人のために
 https://www.uta-net.com/song/2799/
+## 別れた人に会った
+## 雨の御堂筋
+## お久しぶりね
+## さらば青春
+## 戦争を知らない子供たち
+## 帰ってきたウルトラマン
+
+
 ## OSSの歌
 名もない人がプログラムを書いた
 
