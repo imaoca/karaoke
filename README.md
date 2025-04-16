@@ -1,4 +1,9 @@
+
 # karaoke
+## 東京
+https://www.uta-net.com/song/6435/
+##タイガーマスク
+https://www.uta-net.com/movie/10766/
 ## わがよき友よ
 https://www.uta-net.com/song/4946/
 ## 鉄腕アトム
