@@ -1,5 +1,11 @@
 
 # karaoke
+## 木綿のハンカチーフ
+https://www.uta-net.com/song/4548/
+## 雨の御堂筋
+https://www.uta-net.com/song/21204/
+## 帰ってきたウルトラマン
+https://www.uta-net.com/song/7360/
 ## また逢う日まで
 https://www.uta-net.com/song/4244/
 ## 翼をください
