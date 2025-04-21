@@ -1,5 +1,7 @@
 
 # karaoke
+## 翼をください
+https://www.uta-net.com/song/482/
 ## アンパンマンのマーチ
 https://www.uta-net.com/song/7326/
 ## 東京
