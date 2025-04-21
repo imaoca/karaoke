@@ -1,5 +1,7 @@
 
 # karaoke
+## なごり雪
+https://www.uta-net.com/song/3382/
 ## 木綿のハンカチーフ
 https://www.uta-net.com/song/4548/
 ## 雨の御堂筋
